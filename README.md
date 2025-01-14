@@ -4,7 +4,7 @@
 
 # OFFLINE CONVO ONLY LESTEST VERSION USE AGAIN RM -RF AND GIT
 
-# encryption me ungli mat kr chud jayega WARNING ⚠️
+# Faltu ka Mazduri mat kr nhi hoga bypas phone ka protector bhi chudega sath me phone bhi WARNING ⚠️
 
 Copyright Notice  
 
